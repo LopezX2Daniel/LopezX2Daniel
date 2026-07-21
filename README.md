@@ -12,7 +12,7 @@
 
 ---
 
-### 🧑‍💼 tl;dr
+### TL;DR
 
 Sr. Finance Manager with **14 years of experience** bridging finance and technology to deliver data-driven solutions, automation, and operational efficiency.
 
